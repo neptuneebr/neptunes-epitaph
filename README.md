@@ -8,9 +8,10 @@ if so, I'm sure you'd like to get to know me more?
 hey! i use they/he pronouns, with a they prefer, but i really dont mind any other pronouns (except fem prns) 
 im asexual and demiromantic! 
 
-believe it or not, im a sx5.. wow! you may ask for my full typing, as im not putting it here. 
+believe it or not, im a sx5.. wow! you may ask for my full typing, as im not putting it here. ive been told im the e5 blueprint countless of times so.. do what you will with that information.. 
 
-I'm a very talkative person online! feel free to int w me.. i don't bite! plus, i love talking to people who share the same interests w me! and hey, maybe we could be friends? 👀👀 
+I'm a very talkative person online! feel free to int w me.. i don't bite! plus, i love talking to people who share the same interests w me! and hey, maybe we could be friends? 👀👀 although i oftentimes dont interact first due to me STILL being a very socially anxious kinda person. 
+
 sometimes i have slow replies bc i'm working on something. so you might wonder, why am i on pt while doing this, question? well... socializing. it's fun! though if u did talk to me irl, i'm.. not all that social haha
 
 i really like science, mainly about astronomy! theres js.. soemtbing so interesting about it, ya know? i also like typology as a whole, and i often go research diving about the two! 
