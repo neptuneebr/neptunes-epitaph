@@ -36,4 +36,8 @@ genshin impact • honkai star rail • cookie run (crob mainly) • minecraft (
 hobbies:
 drawing (painting mainly) • cosplaying • writing • arts and crafts(??) • sewing • collecting (gems, trinkets, coins) • baking • cooking • maybe more? 
 
+-----
+
+R & S ILY GUYS SOSOSOSOOSOSO MUCH ❤❤❤❤❤❤❤❤❤❤❤❤❤❤
+
 thats all for now i hope! maybe I'll add more, who knows? 👀👀
